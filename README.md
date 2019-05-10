@@ -2,7 +2,7 @@
 Automotive repair center
 
 
-After beeing in the industry for more than 12 years we decided to open a garage that takes proper care of their costumers at reasonable prices for some extra apreciation . 
+After beeing in the industry for more than 12 years we decided to open a garage that takes proper care of their costumers at reasonable prices for some extra appreciation . 
 We love what we do and this is what we actualy do :
 
 Cars Supercars Luxury cars Commercials and private are all Wellcome
